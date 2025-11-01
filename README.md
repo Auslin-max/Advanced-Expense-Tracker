@@ -60,7 +60,7 @@ It helps users monitor their spending habits and improve budgeting through visua
 
 📧 **Email:** auslinrijo5@gmail.com  
 🔗 **GitHub:** [github.com/Auslin-max](https://github.com/Auslin-max)  
-🔗 **LinkedIn:** [linkedin.com/in/auslin-rijo](https://linkedin.com/in/auslin-rijo)
+🔗 **LinkedIn:**https://www.linkedin.com/in/auslin-rijo-958a972a3
 
 ---
 
